@@ -29,7 +29,7 @@
 
 点击访问：<a href="https://hl383.pages.dev/">黑料社区</a>
 
-点击访问：<a href="https://hl386.pages.dev/">抖音黑料</a>
+点击访问：<a href="https://hl386.pages.dev/">抖音黑料最新</a>
 
 点击访问：<a href="https://hl387.pages.dev/">黑料社/a>
 
